@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MUCE050601MBCXNMA2
+MUCE050601MBCXNMA2
